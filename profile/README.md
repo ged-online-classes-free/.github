@@ -33,11 +33,11 @@ USAHello offers one of the most trusted free GED® preparation platforms. The cl
 
 | Feature             | Old Course (until Aug 31, 2025) | New Course (available now) |
 |---------------------|----------------------------------|-----------------------------|
-| **Design**          | Standard lessons and quizzes     | Cleaner design, easier to use |
-| **Content**         | Basic text-based lessons         | 68 video lessons + 700+ quizzes |
-| **Flexibility**     | Sequential learning only         | Jump to any topic anytime   |
-| **Progress Transfer** | Not available                  | Requires a new account      |
-| **Access Deadline** | Ends August 31, 2025             | No deadline, learn at your pace |
+| **Design**          | Standard lessons and quizzes  - Course Avaliable now  | Cleaner design, easier to use  - access now |
+| **Content**         | Basic text-based lessons     - course avaliable now     | 68 video lessons + 700+ quizzes - access now  |
+| **Flexibility**     | Sequential learning only   - course avaliable now      | Jump to any topic anytime access now   |
+| **Progress Transfer** | Not available            - course avaliable now      | Requires a new account   access now   |
+| **Access Deadline** | Ends August 31, 2025       - course avaliable now       | No deadline, learn at your pace access now |
 
 ✅ **Recommendation**: If you are nearly finished in the old course, complete it before **August 31, 2025**. Otherwise, begin in the **new course** for updated lessons and quizzes.  
 
