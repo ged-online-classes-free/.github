@@ -3,6 +3,9 @@
 Be prepared for the GED® test with USAHello’s self-paced classes.  
 ✨ 100% Free. Accessible. Flexible for everyone.  
 
+<img width="1321" height="545" alt="image" src="https://github.com/user-attachments/assets/09d436dd-c51b-4cf6-afb2-c96321582dfe" />
+
+
 👉 **Sign up today — no payment, no ads, no gimmicks.**  
 
 ---
